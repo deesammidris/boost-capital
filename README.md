@@ -1,2 +1,2 @@
-# boost-capital
-Global leading bitcoin Investment company, trusted, legal
+#boost-capital.ltd
+Global leading bitcoin Investment company, trusted and legal
